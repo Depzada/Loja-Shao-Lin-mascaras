@@ -16,5 +16,14 @@ Spider man: ![image](https://github.com/user-attachments/assets/0bac4c98-661a-4b
 
 Fantasia Samurai: ![image](https://github.com/user-attachments/assets/eb2a5089-a6bc-426e-b1ac-828bda70bd5c)
 
+Fantasia do Link de The Legend of Zelda: ![image](https://github.com/user-attachments/assets/8414280a-8bce-4059-943f-88f6b8619db0)
+
+Fantasia de Luffy, de One Piece: ![image](https://github.com/user-attachments/assets/69584eb6-5c84-44c9-a006-79dee8eec9c7)
+
+Fantasia de Peixoto do Fortnite: ![image](https://github.com/user-attachments/assets/a811c19b-2bdc-4af1-8e57-efd776fbea96)
+
+
+
+
 
 
